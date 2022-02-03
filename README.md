@@ -1,1 +1,1 @@
-# try-new-things
+# try-new-things !! Well i'm new in programmimg so can do nmany bugs but it's just a new journey in my long life :) If you want get know with who You are working You can see my fun page on https://facebook.com/nijakisan or visit me on my channel on https://twitch.tv/nijakisan ! Streaming is my passion but in real life i'm securitty worker on factory :) Ok that' it for now if someone will be so nice all help will be nice seeing see yaa creators :)
